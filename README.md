@@ -1,0 +1,2 @@
+# Coin-Master
+Free Spins
